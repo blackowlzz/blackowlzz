@@ -1,1 +1,1 @@
-[![trophy](https://github-profile-trophy.vercel.app/?username=blackowlzz&theme=onedark)]([https://github.com/ryo-ma/github-profile-trophy](https://www.youtube.com/watch?v=dQw4w9WgXcQ&ab_channel=RickAstley)https://www.youtube.com/watch?v=dQw4w9WgXcQ&ab_channel=RickAstley)
+[![trophy](https://github-profile-trophy.vercel.app/?username=blackowlzz&theme=onedark)]([https://github.com/ryo-ma/github-profile-trophy](https://www.youtube.com/watch?v=dQw4w9WgXcQ&ab_channel=RickAstley)
